@@ -3,7 +3,7 @@
 
 Links úteis:
 
-([Adicione aqui o link do seu tik tok](https://tiktok---jornada-c8f8e.web.app/))
+(https://tiktok---jornada-c8f8e.web.app/))
 
 [![Instagram](https://img.shields.io/badge/Instagram-E4405F?style=for-the-badge&logo=instagram&logoColor=white)](https://www.instagram.com/@_brunossousa
 
